@@ -1,0 +1,1 @@
+# kelompok_para_budak
